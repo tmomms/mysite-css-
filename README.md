@@ -1,0 +1,1 @@
+https://bekzatbakirov.github.io/BekzatBakirov/
